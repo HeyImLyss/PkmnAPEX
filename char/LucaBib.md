@@ -9,3 +9,5 @@ Let's say instead of him embodying aspects of performativity--of not being what 
 Enter the ending stages of the story of B/W, and the dissolution of Team Plasma. Luca is dejected, humiliated even. Just a young man, working for years for an organization that stood against the same ideals he fought so hard for, vows to never throw his weight behind another's efforts again. He comes to the conclusion that he alone can pursue these ideals. Now, he refuses to be used for the purposes of anything but what he knows is justice.
 
 Luca isn't under the impression he's going to change the world. He's not even convinced he can achieve his goals on any scale that could be significant, but for what little he can accomplish, he's determined to see it through.
+
+## Feedback (Pending)
