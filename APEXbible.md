@@ -18,21 +18,21 @@ Better understanding of what the gauntlet means to different people in this worl
 
 ## Potential Areas
 
-Beach, 
+Beach (Speaks for itself, but could still have some interesting geography), 
 
-plains, 
+plains (Would like more here. Perhaps an outset part of the mountain still set higher on the island?)
 
 petrified forest (Deep underground where trees and plants have been dehydrated and this can never rot away? Only eventually eroding to dust?)
 
-hydrothermal springs, 
+hydrothermal springs (Pokemon associated with it like Numel or Slugma may have migrated to the aquaducts causing this.)
 
 bioluminescent fungi area (fairy forest type shit), 
 
-gem cave, 
+gem cave (Love me some gem caves. Perhaps a different spin on the magnetic caverns.)
 
-volcano, 
+volcano (Somewhere deeper set into the mountain I would imagine. Both fire types, hardened Rock types and forged Steel mons), 
 
-cloud forest?, 
+cloud forest? (Maybe caused from the lower hydrothermal springs? The steam perhaps rises and creates the cloud forest in the area above?), 
 
-icy peaks,
+icy peaks (Self explanatory. Assuming this is the titular Apex of the mountain.),
 
